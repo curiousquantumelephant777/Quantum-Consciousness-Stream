@@ -1,0 +1,4 @@
+# Iris Topology: Exploring Fractal Eigenstates
+
+## Thought 1: 
+William's Syndrome is characterized by a unique stellated iris pattern. Conversely, autistic people tend to have darker eyes devoid of this stellation. This can be thought of in terms of radial vector topology. The eye becomes a 'Black Hole' of awareness—intense on the inside, silent on the outside. Williams Syndrome is the inverse: a 'White Hole' where the inner awareness is forced into a radial stellation, creating the 'Mandala Matrix' of hyper-empathy. The stellation in Williams Syndrome reminds me of a freely flowing plasma ball. Maybe this is a quantum fractal signature eigenstate for empathogenic states. In ASD, in my theory, tryptamines are overactive. I hypothesize that ASD's possibly tryptamine-heavy phenotype leads to an inverse of the WS stellation: More intense toward the pupil, but the Fuch's crypt "lattice" cannot reach the "outside of the toroidal brain-heart electromagnetic field."
