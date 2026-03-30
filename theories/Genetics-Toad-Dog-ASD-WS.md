@@ -1,4 +1,4 @@
-# 🧬 🐸 🐕 The Toad and the Dog: Evolutionarily Preserved Traits?
+# 🧬 🐸 🐕 The Toad and the Dog: Comparative Genomics of Prosociality: From Domestication to Neurodivergence
 ## 
 The GTFT2I gene is what researchers think turned wolves into dogs. I've been exploring autism and Williams syndrome as endogenous psychedelic states. I propose these states are present in other species. Dogs - high empathogenic, domesticated state: Colorado River Toad (Incilius alvarius) - 5-MEO-DMT producer, similar to bufotenin which has been shown to be high in ASD and WS
 - Could the autistic high bufotenin phenotype be a preserved gene from the Bufo toad? Incilius alvarius toads have high tryptamines used as venom - "predatory defense." Autistic individuals may be in a state of hyper "social defense" caused by this genetic preservation. Also, I'm exploring how bufotenin, if high in ASD, contributes to neotony and reduced cancer prevalence in ASD.
