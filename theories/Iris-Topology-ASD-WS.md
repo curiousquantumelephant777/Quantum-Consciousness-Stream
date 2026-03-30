@@ -1,4 +1,4 @@
-# 🌀 Iris Topology: Exploring Fractal Eigenstates
+# 🌀 Ocular Morphometrics: Exploring Fractal Eigenstates
 
 ## Thought 1: 
 - William's Syndrome is characterized by a unique stellated iris pattern. Conversely, autistic people tend to have darker eyes devoid of this stellation. This can be thought of in terms of radial vector topology. The eye becomes a 'Black Hole' of awareness—intense on the inside, silent on the outside. Williams Syndrome is the inverse: a 'White Hole' where the inner awareness is forced into a radial stellation, creating the 'Mandala Matrix' of hyper-empathy. The stellation in Williams Syndrome reminds me of a freely flowing plasma ball.
